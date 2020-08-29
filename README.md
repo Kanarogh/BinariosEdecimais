@@ -1,0 +1,2 @@
+# coordenadas
+ exercicio da Vânia
